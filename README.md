@@ -1,5 +1,5 @@
 
-![Screenshot_20241206_150237](https://github.com/user-attachments/assets/69c29a7d-ab4f-4c8a-a802-3ac6f5b3a6a1)
+
 ![Screenshot_20241206_150253](https://github.com/user-attachments/assets/04834266-54d2-47fe-b7e5-953bdec25b05)
 
 Intro
