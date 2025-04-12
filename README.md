@@ -1,6 +1,5 @@
+![IMG_20250411_224459](https://github.com/user-attachments/assets/f88d914e-15af-411e-b608-691a8f1471ff)
 
-
-![Screenshot_20241206_150253](https://github.com/user-attachments/assets/04834266-54d2-47fe-b7e5-953bdec25b05)
 
 Intro
 
@@ -14,7 +13,7 @@ Im a <She / Her> but <they / them> is ok. ¯\_(ツ)_/¯
 I Dandys world and i love Dandy. 
 I play games like Dw, Wuwa, Hsr, Gi and more..Wonderhoy
 You can rarely find me in Pt. 
-Im in fandoms like Bsd, Evade, Dw and Jjk. 
+Im in fandoms like Bsd, Evade, Dw and Jjk, P5, P3
 
 Im a 𝓯𝓻𝓮𝓪𝓴 for dandy too (+ chuuya) >////<
 Im chaotic (╯°□°)╯︵ ┻━┻
@@ -33,10 +32,11 @@ My spelling is bad
 
 I gamble
 I play claw machines. 
-Im a sweat in Claw machines
-
-(drawing  Creds by Freaky World / Dandy Freakoff from TT) 
+Im a sweat in Claw machines 
 
 Pleasure to meet you.
 
 bye. 
+
+![6a909bd4cf82bb2325301addd2322c46](https://github.com/user-attachments/assets/fcb96346-65c9-4239-9e18-398268492247)
+
